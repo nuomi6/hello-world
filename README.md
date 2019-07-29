@@ -2,4 +2,4 @@
 
 Hi myfriend!
 
-Welcomeq!!!
+Welcome!!!
